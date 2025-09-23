@@ -6,6 +6,6 @@ I look at SUI TRUMP not only as a speculative tool but also as a reflection of t
 
 For me personally, tokens like this are more about play and risk. It’s fine to put in a small amount just for the experiment, for the feeling of being part of something unusual. But building long-term plans or betting everything on it — that’s definitely not my way.
 
-In a sense, SUI TRUMP is like a litmus test for me: how far are people in crypto willing to invest not in technology, but in emotion? And that’s actually fascinating to watch. /8//812345678
+In a sense, SUI TRUMP is like a litmus test for me: how far are people in crypto willing to invest not in technology, but in emotion? And that’s actually fascinating to watch. /8//81234567810
 
 

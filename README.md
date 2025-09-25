@@ -9,4 +9,4 @@ For me personally, tokens like this are more about play and risk. It’s fine to
 In a sense, SUI TRUMP is like a litmus test for me: how far are people in crypto willing to invest not in technology, but in emotion? And that’s actually fascinating to watch. 
 
 
-12
+123

@@ -10,4 +10,4 @@ In a sense, SUI TRUMP is like a litmus test for me: how far are people in crypto
 
 
 
-
+u
